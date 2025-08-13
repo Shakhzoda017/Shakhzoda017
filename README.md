@@ -1,4 +1,4 @@
-# 🌸 Shaxzoda Abdugafurova
+# 🌸 Shakhzoda Abdugafurova
 
 💻 Passionate about Technology, Languages & Economics  
 📍 From Tashkent, Uzbekistan 
