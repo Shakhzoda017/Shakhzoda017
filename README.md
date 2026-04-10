@@ -1,4 +1,4 @@
-Passionate about Technology, Languages & Economics 
+Passionate about Technology, Business & Economics 
 
 🌐 Connect with Me
 - 📧 Email: abdugafurovashakhzoda@gmail.com  
